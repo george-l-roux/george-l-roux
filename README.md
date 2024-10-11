@@ -9,6 +9,6 @@ Im Luted09_ :3
 ⬇️
 - 🔭 I’m currently working on Irl Stuff, An fnf mod
 - 💬 Ask me about anything ⬇️
-- 📫 How to reach me: lenrouxgd@outlook.com 
+- 📫 How to reach me: lenrouxgd@outlook.com, Discord (Luted09_) 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i hate two factor authentication
